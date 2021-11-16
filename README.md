@@ -4,7 +4,7 @@
 - 🌱 I’m currently learning Python!!
 - 👯 I’m looking to collaborate on nothing really, as I am learning :(
 - 🤔 I’m looking for help with nothing right now.
-- 💬 Ask me about anything, I might know, i might don't
+- 💬 Ask me about anything, I might know, i might not
 - 📫 How to reach me: twitter, instagram or YouTube!
 - 😄 Pronouns: huh...
 - ⚡ Fun fact: I also have a podcast!
